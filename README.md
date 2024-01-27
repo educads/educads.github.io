@@ -1,1 +1,0 @@
-# educads.github.io
